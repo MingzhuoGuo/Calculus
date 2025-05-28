@@ -14,3 +14,6 @@ I don't have too many comments on multi-variable calculus. Because as you learne
 For the ones preparing for AP calc, I don't care if you are learning AB or BC (I don't see too many differences between these two), but I have to recommand the Khan Academy as a source for practicing. Khan Academy contains a lot of materials, and trust me, you will deal with the AP exams easily as hell if you can do those unit by unit. You can also use Priceton Review or Barron's for that exam. 
 
 For all the books I mentioned above, contact me if you need any of those or have any other needs. My email is mingzhuog2008@gmail.com, I have all the materials you need, more than you can imagine. 
+
+Mingzhuo Guo,
+2025/5/27
